@@ -8,5 +8,7 @@ All ielts resouces are free ! We have a full set of ielts test sets 1-18 here!<b
 ![image](https://github.com/huange888/IELTS-free-resouces/assets/118048444/07d680d1-978c-4109-af82-5023c54d741f)
 
 # 还有新东方的所有雅思词汇 在txt文件里面
+![image](https://github.com/huange888/IELTS-free-resouces/assets/118048444/45999af4-64b9-4ba0-99bc-6743c8568b33)
+
 # 祝你好运 ！ 雅思8.0以上！❥(^_-)
 ![image](https://github.com/huange888/IELTS-free-resouces/assets/118048444/1da7b4f2-784e-4267-91c8-777a43285827)
