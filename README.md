@@ -7,3 +7,4 @@ All ielts resouces are free ! We have a full set of ielts test sets 1-18 here!<b
 复制这段内容打开「百度网盘APP 即可获取」 <br>
 
 # 还有新东方的所有雅思词汇 在txt文件里面
+# 祝你好运 ！ 雅思8.0以上！❥(^_-)
