@@ -5,3 +5,5 @@ All ielts resouces are free ! We have a full set of ielts test sets 1-18 here!<b
 链接：https://pan.baidu.com/s/1WQDXobOSD3vu7PFO6KgiNA  <br>
 提取码：nDfB  <br>
 复制这段内容打开「百度网盘APP 即可获取」 <br>
+
+# 还有新东方的所有雅思词汇 在txt文件里面
